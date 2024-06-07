@@ -1,2 +1,0 @@
-# website
-WE LOVE RUSSIA TOKEN
